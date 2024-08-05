@@ -9,4 +9,4 @@ Chemfuel 1000/10000
 
 I recommend using the mod Call orbital traders as well
 
-By Sappho7124
+By Sampho
